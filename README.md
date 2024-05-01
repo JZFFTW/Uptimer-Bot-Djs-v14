@@ -7,7 +7,7 @@
 # How To Setup Bot?
 - Watch [**Youtbe Video**](https://youtu.be/soon)
 # 💖 Support
-- ### [ΛLL IN ONΞ™ | Development </>](https://dsc.gg/CQq59RkbAz)
+- ### [MOUTIE ELLAFI™ | Development </>](https://dsc.gg/CQq59RkbAz)
 # 💝 Credit
 Make sure to credit me!
 ### [U_rf](https://discord.com/users/1234282592136593408) | [Instagram](https://www.instagram.com/ellafi._.kvtana?igsh=MW9hNXNxdzc0ZXZ5cw==) | [Discord](https://dsc.gg/CQq59RkbAz)
