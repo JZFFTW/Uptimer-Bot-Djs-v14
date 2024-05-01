@@ -1,7 +1,7 @@
 <h1 align="center">
    Uptimer Bot - Discord.js v14
 </h1>
-<h4 align="center">Made with love by Uo#1428 (dont take credit)</h4>
+<h4 align="center">Made with love by U_rf (dont take credit)</h4>
 
 ---------
 # How To Setup Bot?
